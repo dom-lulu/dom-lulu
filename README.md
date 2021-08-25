@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dom-lulu
 - 👀 I’m interested in sports, analytics, and games.
 - 🌱 I’m currently learning all sorts of stuffs related to ^.
-- 💞️ I’m looking to collaborate on sports analytics projects.
+- 💞️ I’m looking to collaborate on anything related to ^^.
 - 📫 How to reach me: dfayad@lululemon.com
 
 <!---
